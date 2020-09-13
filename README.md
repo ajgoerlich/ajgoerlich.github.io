@@ -1,1 +1,0 @@
-# ajgoerlich.github.io
